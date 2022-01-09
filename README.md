@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BulatMatigorov
 - 👀 I’m interested in a self-development
 - 🌱 I’m currently learning BI
-- 💞️ I’m looking to collaborate on Inca Digital
+- 💞️ I’m looking to collaborate with Inca Digital
 - 📫 How to reach me: +79274453737 , @deltapusher
 
 <!---
